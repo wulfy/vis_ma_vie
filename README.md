@@ -3,7 +3,7 @@
 
 La Goutte et l'Araignée
 
-Quand l'Enfer eut produi la Goutte et l'Araignée,
+Quand l'Enfer eut produit la Goutte et l'Araigné,
 
 "Mes filles, leur dit-il, vous pouvez vous vanter
 
