@@ -24,7 +24,6 @@ Tenez donc, voici deux bûchettes ;
 Accommodez-vous, ou tirez.
 
 - Il n'est rien, dit l'Aragne, aux cases qui me plaise. "
-- 
 L'autre, tout au rebours, voyant les Palais pleins
 
 De ces gens nommés Médecins,
